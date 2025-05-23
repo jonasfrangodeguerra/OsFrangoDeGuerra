@@ -1,2 +1,2 @@
-# OsFrangoDeGuerra
+## OsFrangoDeGuerra
 grupo do senai 😎👌
