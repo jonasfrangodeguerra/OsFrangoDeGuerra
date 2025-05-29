@@ -7,3 +7,4 @@ Thigas Rabetão
 <<<<<<< HEAD
 Simba Calvo kkkkkk UwU
 joão henrique 😎👌
+Git pull
