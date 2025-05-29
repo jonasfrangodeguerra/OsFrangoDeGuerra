@@ -8,7 +8,7 @@ Thigas Rabetão
 =======
 Victor (Simba Calvo kkkkkk UwU)
 =======
-joão henrique 😎👌a
+joão henrique 😎👌
 =======
 Daniel gostosão
 =======
